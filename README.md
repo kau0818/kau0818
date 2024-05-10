@@ -11,7 +11,7 @@ Meu nome é Kauany Moreno
 ### Você pode entrar em contato comigo 📫 
 00001073560995sp@al.educacao.sp.gov.br
 
-@kauanymoreno
+@kau0818
 
 ![](https://media1.tenor.com/m/7k9aTZwLXg0AAAAC/kermit.gif)
 
